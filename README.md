@@ -31,7 +31,3 @@ You can reach me on discord at itspronouncedtie.sky
 okay thats all for now byebye 
 
 
-
-
-  
-![SOMETHING](https://github.com/user-attachments/assets/be9ddc7c-2111-4431-b047-e57755fd466b)
