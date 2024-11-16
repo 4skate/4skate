@@ -20,7 +20,7 @@ I have about 2 years of experience using various languages such as:
 - JavaScript
 - Java
 - Python
-- and last but not least....... C++
+- and C++
 
 Ive never really applied what I have learned to commits so far, but I hope to soon!
 
